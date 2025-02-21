@@ -68,11 +68,13 @@ P.S. 目前的帖子都是英文版本，想偷个懒还没有翻译计划
 
 以下友链都是我认识的人的，而且他们应该已经有和我交换过链接了（他们最好有……）
 
-- [咸鱼暄：](https://xuan-insr.github.io)
+- [咸鱼暄：笨蛋光头](https://xuan-insr.github.io)
 
 - [试鸢：玩崩坏玩的](https://elysium-everlasting.com)
 
 - [夜辰：学习，就是发现自己越来越菜的过程](https://blog.night1918.top)
+
+- [fufu 酱的笔记本：线虫](https://csfufu.life)
 
 额外推荐：
 
