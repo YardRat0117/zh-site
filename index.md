@@ -75,7 +75,7 @@ title: 🦊三墩镇狐狸王
 
 - [夜辰：学习，就是发现自己越来越菜的过程](https://blog.night1918.top)
 
-- [fufu 酱的笔记本：线虫](https://csfufu.life)
+- [此处留白，以作警示](post/Warning.md)
 
 额外推荐：
 
